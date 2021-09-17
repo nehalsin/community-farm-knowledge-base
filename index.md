@@ -14,4 +14,5 @@ India too has its share of such community living experiences and I am blessed to
 
 ## Communities in Action
 
-1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/)
+1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/) 130 kms from Pune, Maharashtra, India
+
