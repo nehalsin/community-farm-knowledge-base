@@ -10,9 +10,9 @@ People from all walks of life, all ages and capacities are moving, at least part
 
 Without much investment of time and resources, away from hustle and bustle of city, some start as weekend hobby and later on graduate to full time or a serious vocation as things evolve.
 
-India too has its share of such community living experiences, and I am blessed to be associated with some of them through my humble contribution, as this Community Farm Knowledge Base providing solid logistical framework for, and with those those who are on the fields in real action!
+India too has its share of such community living experiences, and I am blessed to be associated with some of them through my humble contribution, as this Community Farm Knowledge Base providing solid logistical framework for, and with those who are on the fields in real action!
 
-## Inspiring Communities - Join Online and Offline
+## Inspiring Community Farms - Join Online/Offline
 
-1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/) 130 kms from Pune, Maharashtra, India
+1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/) 130 KM from Pune, Maharashtra, India
 
