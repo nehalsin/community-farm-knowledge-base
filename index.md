@@ -16,4 +16,4 @@ India too has its share of such community living experiences, and I am blessed t
 
 1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/) 130 KM from Pune, Maharashtra, India
 
-## [Guidelines](https://nehalsin.github.io/guidelines/)
+## [Voluntary Spirit Guidelines](https://nehalsin.github.io/voluntary-spirit-guidelines/)
