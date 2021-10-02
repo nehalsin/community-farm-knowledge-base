@@ -16,4 +16,8 @@ India too has its share of such community living experiences, and I am blessed t
 
 1. [Jeevan Aranya Belvan](https://nehalsin.github.io/jeevan-aranya-belvan/) 130 KM from Pune, Maharashtra, India
 
+## Join the Community
+
+Join our [Telegram channel](https://t.me/communityfarming) to receive [moderated](moderated-channel-benefits.md) ([सम्यक समूह लाभ](सम्यक-समूह-लाभ.md)) information only. 
+
 ## [Voluntary Spirit Guidelines](https://nehalsin.github.io/voluntary-spirit-guidelines/)
