@@ -14,6 +14,6 @@ India too has its share of such community living experiences, and I am blessed t
 
 ## Inspiring Community Farms - Join Online/Offline
 
-1. [Jeevan Aranya Belvandi](https://nehalsin.github.io/jeevan-aranya-belvandi/) 130 KM from Pune, Maharashtra, India
+1. [Jeevan Aranya Belvan](https://nehalsin.github.io/jeevan-aranya-belvan/) 130 KM from Pune, Maharashtra, India
 
 ## [Voluntary Spirit Guidelines](https://nehalsin.github.io/voluntary-spirit-guidelines/)
